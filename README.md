@@ -1,0 +1,1 @@
+# Tak-m-A-nma-Sistemi
